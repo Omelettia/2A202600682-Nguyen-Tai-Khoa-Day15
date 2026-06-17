@@ -1,6 +1,6 @@
 # TRACK DECISION MEMO – Day 15
 
-**Họ tên:** Nguyễn Tài Khoa　　　　　　**Pathway:** \_\_\_\_\_\_\_\_\_\_\_
+**Họ tên:** Nguyễn Tài Khoa　　　　　　**Pathway:** 2
 
 ---
 
